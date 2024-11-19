@@ -13,7 +13,7 @@ Music is my main hobby as of the moment.
 I have done Black Smithing, Wood Work, Wood Turning, and logging as hobbies.
 
 Traditional Archery is another hobby I have. I own a recurve bow. I used to participate in
-a Tradition S3DA archery team several years ago and have participated in a handful of tournaments.
+a Traditional S3DA archery team several years ago and have participated in a handful of tournaments.
 
 I am currently working on my Bachelors in Business Management of Information Systems.
 
